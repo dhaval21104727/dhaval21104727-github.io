@@ -19,13 +19,3 @@ Skilled information technologies professional with a background in IT Support, c
 
 
 ***
-
-# Contact
-
-🏙️ Toronto, Ontario  
-📧 Dhavalprajapati4599@gmail.com  
-📞 +91 (972)-398-7903  
-🔗 LinkedIn: [Dhaval Prajapati](linkedin.com/in/dhavalprajapati195)
-
-
-***
